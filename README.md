@@ -6,7 +6,7 @@ Just visit my repository, and watch what I did...
 
 I respect everyone who works hard without anyone who hurts other people..
 
-Thanks, have a good day!
+Thanks, have a good day! 🤟
 <!--
 **eomheejun-web/eomheejun-web** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
