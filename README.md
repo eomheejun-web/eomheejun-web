@@ -2,7 +2,7 @@
 
 I like 라면. You know?🍜🍜🍜🍜🍜🍜🍜
 
-Just visit my repository, and look what I did...
+Just visit my repository, and watch what I did...
 
 I respect everyone who works hard without anyone who hurts other people..
 
