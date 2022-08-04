@@ -1,5 +1,12 @@
 ### Hi there 👋
 
+I like 라면. You know?🍜🍜🍜🍜🍜🍜🍜
+
+Just visit my repository, and look what I did...
+
+I respect everyone who works hard without anyone who hurts other people..
+
+Thanks, have a good day!
 <!--
 **eomheejun-web/eomheejun-web** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
